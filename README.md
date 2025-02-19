@@ -1,4 +1,4 @@
-## Hi I'm Vy 👋
+## Hi, I'm Vy 👋
 I'm a _**Fresh Graduate**_ majoring in _**Digital Business**_ at _**RMIT University**_. I'm enthusiastic in _**Data Analytics**_ and eager to begin my career in _**E-commerce Industry**_. Scroll down to see my _**Stakeholder Projects**_. 
 
 Or:
